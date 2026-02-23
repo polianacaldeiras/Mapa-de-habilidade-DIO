@@ -31,6 +31,7 @@ Claro, Poliana! Vamos organizar algumas habilidades que normalmente usamos no di
 - Criatividade – gerar ideias novas e originais.
 - Disciplina – manter hábitos e rotinas produtivas.
 
+Etapa 2: Cruzamento com Necessidades do Mercado
 
 Me dê ideias de como usar minha habilidade de organização para ganhar dinheiro."
 
@@ -51,6 +52,7 @@ Excelente ideia, Poliana! Sua habilidade de organização pode ser transformada 
 
 Sua habilidade de organização é valiosa porque economiza tempo e reduz estresse — e muita gente está disposta a pagar por isso.
 
+Etapa 3: Caminhos de Monetização
 
 "gostei da ideia de secretariado remoto e também de gestão de projetos como posso divulgar esse serviço?"
 
